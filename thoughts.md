@@ -5,3 +5,6 @@ My two takeaways!
 My two strategies!
 1- I will actually use Pom's consistently
 2- I will lean on fellow students for help if I can't solve something within 30 mins on my own
+
+Shoutout!
+Shout out to my family for always being my cheerleaders!
