@@ -9,5 +9,4 @@ My two strategies!
 Shoutout!
 Shout out to my family for always being my cheerleaders!
 
-New thoughts here!
-My favorite colors are black and pink and turquoise and lime green
+No new thoughts here!
